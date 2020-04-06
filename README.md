@@ -1,1 +1,1 @@
-# Cannabid-Regional-Instream-Policies
+# Cannabis-Regional-Instream-Policies
